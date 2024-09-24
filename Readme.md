@@ -1,8 +1,9 @@
+
 # Mission 2
 
 ## Part 0
 
-[Link to video](https://www.youtube.com/watch?v=UUhavvMO2FQ)
+[Link to video](https://youtu.be/lznBuzeGLcs)
 
 ## Part1
 
